@@ -1,7 +1,7 @@
 # Administradora SQL SERVER
 
 
-![img6]()
+![img6](https://i.ytimg.com/vi/GS4Suh-NqZs/maxresdefault.jpg)
 
 ## Sommaire 
 
